@@ -1,9 +1,11 @@
+　　　　　　　　　　　　　　　　　　　　　　　ⁱ ʳᵉᵃˡˡʸ ᵈᵒⁿ'ᵗ ᵏⁿᵒʷ . ʷʰʸ ʸᵒᵘ ˢᵗⁱᶜᵏ ʳⁱᵍʰᵗ ⁿᵉˣᵗ ᵗᵒ ᵐᵉ 
+
 <p align="center">
 <img width="500" height="500" alt="Untitled674_20260525154233" src="https://github.com/user-attachments/assets/93ea3427-5ec1-40ef-8046-c696d2e0008e" />
 
 </p>
 
-
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　   ʷʰᵉʳᵉᵛᵉʳ ᴵ ᵍᵒ
 
  
  
