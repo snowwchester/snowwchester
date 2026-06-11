@@ -1,7 +1,7 @@
 　　　　　　　　　　　　　　　　　　　　　　　ⁱ ʳᵉᵃˡˡʸ ᵈᵒⁿ'ᵗ ᵏⁿᵒʷ . ʷʰʸ ʸᵒᵘ ˢᵗⁱᶜᵏ ʳⁱᵍʰᵗ ⁿᵉˣᵗ ᵗᵒ ᵐᵉ 
 
 <p align="center">
-<img width="659" height="659" alt="Untitled704_20260611111134" src="https://github.com/user-attachments/assets/e344bdc5-58b5-48ef-af0a-436b8f417420" />
+<img width="425" height="400" alt="Untitled704_20260611111134" src="https://github.com/user-attachments/assets/e344bdc5-58b5-48ef-af0a-436b8f417420" />
 
 
 </p>
