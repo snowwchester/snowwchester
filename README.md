@@ -18,7 +18,7 @@
 　　
 　　  　　 　　
 
-　 　　  　　 　　  　　　 　　　 [ata](https://riddledbatz.atabook.org/)　 　❀　  　[main](https://github.com/riddledbatz)　 　♡　  　[prns](https://pronouns.cc/@riddledbatz_)
+　 　　  　　 　　  　　　 　　　 [ata](https://riddledbatz.atabook.org/)　 　❀　  　[straw](https://snowwchester.straw.page/)　 　♡　  　[prns](https://pronouns.cc/@riddledbatz_)
                    
 　　　　　　　　　　                       　　　      　　      　　    
                                       　 　　  　　　　　 　　　　　　　nwss  　   ,,  　   plural  　　,,　　　 fndm iwc/care
