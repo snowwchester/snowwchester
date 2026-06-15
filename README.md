@@ -18,7 +18,7 @@
 　　
 　　  　　 　　
 
-　 　　  　　 　　  　　　 　　　 [ata](https://riddledbatz.atabook.org/)　 　❀　  　[straw](https://snowwchester.straw.page/)　 　♡　  　[prns](https://pronouns.cc/@riddledbatz_)
+　 　　  　　 　　  　　　 　　　 [ata](https://snowwchester.atabook.org/)　 　❀　  　[straw](https://snowwchester.straw.page/)　 　♡　  　[prns](https://pronouns.cc/@riddledbatz_)
                    
 　　　　　　　　　　                       　　　      　　      　　    
 <p align="center">$\color{#e08e3c}{\textsf{-16 dni 　   ,,  　   nwss  　   ,,  　   plural  　　,,　　　 fndm iwc/care}}$</p>   
