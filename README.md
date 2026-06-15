@@ -30,8 +30,8 @@
 <img width="298" height="209" alt="image" src="https://github.com/user-attachments/assets/7d46f4f0-e983-4dad-a80c-34b682dc3c3a" />
 </p> 
 
-　　　　　　　　　　　　　　　　　　　　　　　　　 my bench trio ! lob u guys
-
+<p align="center">$\color{#85593f}{\textsf{my bench trio ! lob u guys}}$</p> 
+<p align="center">$\color{#d3753e}{\textsf{♡}}$</p>  
 <p align="center">
 
 <img width="54" height="54" alt="tumblr_30f12718ffe2ed74a10349fe092a9cb6_5feb7857_75" src="https://github.com/user-attachments/assets/0629a85c-4c3b-4c3e-887d-20a9ac2deaa6" />
