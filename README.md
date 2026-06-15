@@ -27,7 +27,8 @@
 ⠀  　　　  　　  　　  　　 　　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <p align="center">
-<img width="298" height="209" alt="image" src="https://github.com/user-attachments/assets/7d46f4f0-e983-4dad-a80c-34b682dc3c3a" />
+<img width="460" height="300" alt="Untitled558_20260615180111" src="https://github.com/user-attachments/assets/5d9d2cb7-4ebe-4ffc-8cb1-a61ef0ec9a93" />
+
 </p> 
 
 <p align="center">$\color{#85593f}{\textsf{my bench trio ! lob u guys}}$</p> 
