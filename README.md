@@ -18,7 +18,7 @@
 　　
 　　  　　 　　
 
-　 　　  　　 　　  　　　 　　　 [ata](https://snowwchester.atabook.org/)　 　❀　  　[straw](https://snowwchester.straw.page/)　 　♡　  　[click4screenshots&stuff!](https://screenieszz.straw.page/)
+　 　　  　　 　　　 [ata](https://snowwchester.atabook.org/)　 　❀　  　[straw](https://snowwchester.straw.page/)　 　♡　  　[screenshots&stuff!](https://screenieszz.straw.page/)　 　❀　  　[lovemail](https://lavmail.straw.page/)
                    
 　　　　　　　　　　                       　　　      　　      　　    
 <p align="center">$\color{#e08e3c}{\textsf{-16 dni 　   ,,  　   nwss  　   ,,  　   plural  　　,,　　　 fndm iwc/care}}$</p>   
