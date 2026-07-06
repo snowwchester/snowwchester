@@ -1,7 +1,7 @@
 <p align="center">$\color{#c4894e}{\textsf{ⁱ ʳᵉᵃˡˡʸ ᵈᵒⁿ'ᵗ ᵏⁿᵒʷ . ʷʰʸ ʸᵒᵘ ˢᵗⁱᶜᵏ ʳⁱᵍʰᵗ ⁿᵉˣᵗ ᵗᵒ ᵐᵉ}}$</p>   
 
 <p align="center">
-<img width="425 height="400" alt="Untitled704_20260611124803" src="https://github.com/user-attachments/assets/4d96ed10-60e7-4e1d-aad3-0e53cd6e4f65" />
+<img width="425 height="400" alt="Untitled732_20260706012211" src="https://github.com/user-attachments/assets/309e9e76-2c1a-4056-a01d-4f2599396eff" />
 
 
 
@@ -38,4 +38,8 @@
 <img width="54" height="54" alt="tumblr_30f12718ffe2ed74a10349fe092a9cb6_5feb7857_75" src="https://github.com/user-attachments/assets/0629a85c-4c3b-4c3e-887d-20a9ac2deaa6" />
 
 </p>
+
+
+
+
 
