@@ -18,13 +18,15 @@
 　　
 　　  　　 　　
 
-　 　　  　　 　　　 [ata](https://snowwchester.atabook.org/)　 　❀　  　[straw](https://snowwchester.straw.page/)　 　♡　  　[screenshots&stuff!](https://screenieszz.straw.page/)　 　❀　  　[lovemail](https://lavmail.straw.page/)
-                   
+　 　　  　　 　　　  　　 　　　  　　　 [ata](https://snowwchester.atabook.org/)　 　❀　  　[straw](https://snowwchester.straw.page/)　 
+             
+ 　　　  　　　  　　 　　　 　　　 [screenshots&stuff!](https://screenieszz.straw.page/)　 　♡　  　[lovemail](https://lavmail.straw.page/)
+                  
 　　　　　　　　　　                       　　　      　　      　　    
 <p align="center">$\color{#e08e3c}{\textsf{-16 dni 　   ,,  　   nwss  　   ,,  　   plural  　　,,　　　 fndm iwc/care}}$</p>   
 
                                               
-⠀  　　　  　　  　　  　　 　　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=c0ed7e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/5d9d2cb7-4ebe-4ffc-8cb1-a61ef0ec9a93" width="400" alt="Logo">
