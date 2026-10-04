@@ -1,46 +1,22 @@
-<p align="center">$\color{#c4894e}{\textsf{ⁱ ʳᵉᵃˡˡʸ ᵈᵒⁿ'ᵗ ᵏⁿᵒʷ . ʷʰʸ ʸᵒᵘ ˢᵗⁱᶜᵏ ʳⁱᵍʰᵗ ⁿᵉˣᵗ ᵗᵒ ᵐᵉ}}$</p>   
-
-<p align="center">
-<img width="425 height="400" alt="Untitled732_20260706012211" src="https://github.com/user-attachments/assets/309e9e76-2c1a-4056-a01d-4f2599396eff" />
 
 
+<img src="https://github.com/user-attachments/assets/309e9e76-2c1a-4056-a01d-4f2599396eff" align="left" width="400" alt="Alt text">
+<span style="color: #E54BCD;">
 
-</p>
+  
+ׄ◟ 𝘪 𝘨𝘰𝘵𝘵𝘢 𝘬𝘯𝘰𝘸,   '𝘵𝘪𝘭 𝘵𝘩𝘦𝘯,   𝘸𝘩𝘦𝘯 𝘤𝘢𝘯 𝘸𝘦 𝘥𝘰 𝘵𝘩𝘪𝘴 𝘢𝘨𝘢𝘪𝘯  ?</span>
 
-<p align="center">$\color{#c4894e}{\textsf{ʷʰᵉʳᵉᵛᵉʳ ᴵ ᵍᵒ}}$</p>   
+　 　　  　　    　　    　　    　　    　　  [ata](https://snowwchester.atabook.org/)　 　<img src="https://github.com/user-attachments/assets/0629a85c-4c3b-4c3e-887d-20a9ac2deaa6" width="20" alt="Logo">　  　[straw](https://snowwchester.straw.page/)　  　-16 dni 　   ,,  　   nwss  　 ,,   plural
+                                  
+[screenshots&stuff!](https://screenieszz.straw.page/)　 　♡　  　[lovemail](https://lavmail.straw.page/)  　,,　    fndm iwc
 
- 
- 
+　  <img src="https://github.com/user-attachments/assets/5d9d2cb7-4ebe-4ffc-8cb1-a61ef0ec9a93" width="400" alt="Logo">
 
-
-
-<p align="center">$\color{#e08e3c}{\textsf{(˶ ˘ ³˘)ᵔ⤙ᵔ๑)}}$</p>   
-　　
-　　  　　 　　
-
-　 　　  　　 　　　  　　 　　　  　　　 [ata](https://snowwchester.atabook.org/)　 　❀　  　[straw](https://snowwchester.straw.page/)　 
-             
- 　　　  　　　  　　 　　　 　　　 [screenshots&stuff!](https://screenieszz.straw.page/)　 　♡　  　[lovemail](https://lavmail.straw.page/)
-                  
-　　　　　　　　　　                       　　　      　　      　　    
-<p align="center">$\color{#e08e3c}{\textsf{-16 dni 　   ,,  　   nwss  　   ,,  　   plural  　　,,　　　 fndm iwc/care}}$</p>   
-
-                                              
+　　   　   　   　   　  　   　   　 my bench trio ! lob u guys so much my toms and boo
 
 
-<p align="center">
-<img src="https://github.com/user-attachments/assets/5d9d2cb7-4ebe-4ffc-8cb1-a61ef0ec9a93" width="400" alt="Logo">
-
-</p> 
-
-<p align="center">$\color{#85593f}{\textsf{my bench trio ! lob u guys}}$</p> 
-<p align="center">$\color{#d3753e}{\textsf{♡}}$</p>  
-<p align="center">
-
-<img width="54" height="54" alt="tumblr_30f12718ffe2ed74a10349fe092a9cb6_5feb7857_75" src="https://github.com/user-attachments/assets/0629a85c-4c3b-4c3e-887d-20a9ac2deaa6" />
 
 </p>
-
 
 
 
