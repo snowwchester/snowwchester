@@ -15,7 +15,7 @@ $${\color{#E2AE70}\Huge\text{𝘯𝘸𝘴𝘴 , 𝘧𝘯𝘥𝘮𝘪𝘸𝘤𝘢
 <br/><br>
 　 　　  　　    　　    　　    　　    　　　    　　  [ata](https://snowwchester.atabook.org/)　 　<img src="https://github.com/user-attachments/assets/0629a85c-4c3b-4c3e-887d-20a9ac2deaa6" width="20" alt="Logo">　  　[straw](https://snowwchester.straw.page/)
                                   
-[screenshots&stuff!](https://screenieszz.straw.page/)　 　♡　  　[lovemail](https://lavmail.straw.page/)
+[screenshots&stuff!](https://screenieszz.straw.page/)　 　♡　  　[lovemail](https://lavmail.straw.page/)　  　~　  　[fluffle](https://fluffle.cc/snowwchester)
 </p>
 
 
